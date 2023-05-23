@@ -1,11 +1,7 @@
-## Jeremy Hunter 
+## Elizabeth Bing
 
-- I can play the guitar. Lie
-- I have 9 Nieces and Nephews. 
-- I am afraid of birds.
+- I can speak three languages.
+- I have a motorbike licence.
+- My surname is not my real name.
 
-## Peter Pakoti
 
-- I afraid of heights. Lie
-- I love coffee.
-- I play guitar. 
