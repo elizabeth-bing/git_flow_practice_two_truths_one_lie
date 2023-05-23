@@ -2,7 +2,7 @@
 
 - I can speak three languages.
 - I have a motorbike licence.
-- My surname is not my real name. Anji- Lie
+- My surname is not my real name. Anji- Lie Lie
 
 ## Vals
 
@@ -14,5 +14,5 @@
 
 - my favourite colour - yellow/mustard 
 - I have travelled to 5 countries. - BB'S GUESS
-- I am learning how to recycle and upcycle
+- I am learning how to recycle and upcycle lie
 
