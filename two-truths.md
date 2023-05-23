@@ -1,4 +1,4 @@
-## Elizabeth Bing
+## Bing Bing
 
 - I can speak three languages.
 - I have a motorbike licence.
