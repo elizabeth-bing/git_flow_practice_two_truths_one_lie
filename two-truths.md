@@ -9,6 +9,7 @@
 - I can speak three languages. Anji - Lie
 - I have a motorbike licence. -BB'S GUESS | Anji - Lie
 - My surname is not my real name. -BB'S GUESS | Anji - Lie
+- I come from Africa
 
 ## Anjali
 
